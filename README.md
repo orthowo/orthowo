@@ -32,6 +32,15 @@ i rarely int first, but dont be
 <div align="center">
 afraid, id love to befriend you!
 </div>
+<div align="center">
+usually offtab or s-afk in some
+</div>
+<div align="center">
+way, whisp or send me smth 
+</div>
+<div align="center">
+on ata/straw for best results ^0^
+</div>
  ㅤ ㅤ
   ㅤ ㅤ
 <div align="center">
