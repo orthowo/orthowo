@@ -27,6 +27,14 @@ yume. no hard feelings..
  ㅤ ㅤ
   ㅤ ㅤ
 <div align="center">
+i rarely int first, but dont be 
+</div>
+<div align="center">
+afraid, id love to befriend you!
+</div>
+ ㅤ ㅤ
+  ㅤ ㅤ
+<div align="center">
 multishipper tho idgaf if you
 </div><div align="center">
 dis/like ships or not. i wont mention
