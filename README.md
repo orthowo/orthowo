@@ -46,6 +46,6 @@ on ata/straw for best results ^0^
 <div align="center">
 multishipper tho idgaf if you
 </div><div align="center">
-dis/like ships or not. i wont mention
+like ships or not. i wont mention
 </div><div align="center">
 unless prompted! #peace&luv
