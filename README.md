@@ -7,6 +7,6 @@
 
 </div>
 <div align="center">
-Satoru ㅤGojo ㅤbrained..  ㅤiwc, ㅤesp ㅤif ㅤyume
+Satoru ㅤGojo ㅤbrained..  ㅤiwc, ㅤesp ㅤif ㅤyume. ㅤYES! ㅤIm ㅤcrazy ㅤ^0^
 </div>
 
