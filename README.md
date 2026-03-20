@@ -1,5 +1,5 @@
 <div align="center">
-#[rentry1](https://rentry.co/orthoshroud) 2 ㅤ#straw ㅤ#ata
+#rentry1 2 ㅤ#straw ㅤ#ata
 </div>
 <div align="center">
 
