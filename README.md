@@ -1,5 +1,5 @@
 <div align="center">
-#rentry1 2 ㅤ#straw ㅤ#ata
+<a href="https://rentry.co/orthoshroud">#rentry1</a> <a href="https://rentry.co/cultist">2</a> ㅤ<a href="https://pawretty.straw.page/">#straw</a> ㅤ<a href="https://orthoshroud.atabook.org/">#ata</a>
 </div>
 <div align="center">
 
@@ -7,6 +7,6 @@
 
 </div>
 <div align="center">
- text
+Satoru ㅤGojo ㅤbrained..  ㅤiwc, ㅤesp ㅤif ㅤyume
 </div>
 
