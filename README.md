@@ -1,5 +1,5 @@
 <div align="center">
-<a href="https://rentry.co/orthoshroud"rentry1</a>  <a href="https://rentry.co/cultist">2</a> ㅤ<a href="https://pawretty.straw.page/">strawpage</a> ㅤ<a href="https://listography.com/orthoshroud">listography</a> ㅤ<a href="https://orthoshroud.atabook.org/">atabook</a>
+<a href="https://rentry.co/orthoshroud"rentry1</a> <a href="https://rentry.co/cultist">2</a> ㅤ<a href="https://pawretty.straw.page/">strawpage</a> ㅤ<a href="https://listography.com/orthoshroud">listography</a> ㅤ<a href="https://orthoshroud.atabook.org/">atabook</a>
 </div>
 <div align="center">
 
