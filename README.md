@@ -9,4 +9,6 @@
 <div align="center">
 Satoru ㅤGojo ㅤbrained..  ㅤiwc, ㅤesp ㅤif ㅤyume. ㅤYES! ㅤIm ㅤcrazy ㅤ^0^
 </div>
-
+<div align="center">
+Thankㅤyou,ㅤ<a href="https://github.com/title-town">@title-town</a>ㅤforㅤrecognizingㅤmeㅤasㅤtheㅤ#1ㅤ&ㅤonlyㅤOrthoㅤShroud!
+</div>
